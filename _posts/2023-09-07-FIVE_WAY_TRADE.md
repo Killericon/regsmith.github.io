@@ -24,7 +24,7 @@ That first round pick sent to me was pick **1.06**, which was used on **Jaxon Sm
 
 &nbsp;
 
-We’re off to a bad start. My desire to get a trade done allowed me to have my desire to extract value out of **Daniel Jones** into a willingness to trade away **Trevor Lawrence**, one of the most valuable pieces in Superflex Dynasty. I definitely bought low on **Kyler Murray** though, so who knows! Maybe this will work out just fine for me.
+We’re off to a bad start. My desire to get a trade done transformed my desire to extract value out of **Daniel Jones** into a willingness to trade away **Trevor Lawrence**, one of the most valuable pieces in Superflex Dynasty. I definitely bought low on **Kyler Murray** though, so who knows! Maybe this will work out just fine for me.
 
 &nbsp;
 
@@ -52,7 +52,7 @@ The league overall has won from my efforts. However, I went into the draft with 
 
 &nbsp;
 
-Broncos homer strikes again! The 2023 picks involved in this trade turned into Zay Flowers, **Zach Evans**, Zach Charbonnet, and **Hendon Hooker**, so this trade looks like this:
+Broncos homer strikes again! The 2023 picks involved in this trade turned into **Zay Flowers**, **Zach Evans**, **Zach Charbonnet**, and **Hendon Hooker**, so this trade looks like this:
 
 &nbsp;
 
@@ -60,7 +60,7 @@ Broncos homer strikes again! The 2023 picks involved in this trade turned into Z
 
 &nbsp;
 
-Passing on Zay Flowers here was probably the real dumb move. The most valuable piece of the trade by a decent margin, the guy is going to be the WR1 for a prolific offense helmed by an MVP. Oh well, I had my sights elsewhere, but when I came back on the clock in the second round, both the players I wanted to draft were on the board, and a Seattle running back was there. Hey, Seahawks fan Reggie has two back-to-back picks coming up! Let’s send him an offer…
+Passing on Zay Flowers here was probably the real dumb move. The most valuable piece of the trade by a decent margin, the guy is going to be the WR1 for a prolific offense helmed by an MVP. Oh well, I had my sights elsewhere. When I came back on the clock in the second round, both the players I wanted to draft were there, but so was a Seattle running back. Hey, Seahawks fan Reggie has two back-to-back picks coming up! Let’s send him an offer…
 
 &nbsp;
 
@@ -68,7 +68,7 @@ Passing on Zay Flowers here was probably the real dumb move. The most valuable p
 
 &nbsp;
 
-Okay, so 6 2023 picks involved here. Let’s plug the players these turned into in the ‘old calculator…
+Okay, so 6 2023 picks involved here. Let’s plug the players these turned into in the ‘ol calculator…
 
 &nbsp;
 
@@ -90,7 +90,7 @@ At this point, Reggie messages me asking about Kyler Murray. He’s down bad at 
 
 &nbsp;
 
-This trade calculator can’t do three team trades, so let’s just do the parts I sent out and got back….
+This trade calculator can’t do four team trades, so let’s just do the parts I sent out and got back….
 
 &nbsp;
 
@@ -108,6 +108,6 @@ Okay, so what does this look like in the end? This trade calculator can’t do m
 
 &nbsp;
 
-Well, that’s embarrassing. This method of evaluation also fails to capture the opportunity cost of passing up Jaxon Smith-Njigba or Zay Flowers to turn those picks into other players, but this is a very damning look at what I went into the offseason with against what I came out with.
+Well, that’s embarrassing. This method of evaluation also fails to capture the opportunity cost of passing up Jaxon Smith-Njigba or Zay Flowers to turn those picks into other players, but even removing that this is a very damning look at what I went into the offseason with against what I came out with.
 
 That said, even if I put (way) too many eggs into the “Russell Wilson Bounceback” season basket, I came away with the best RB in fantasy, a QB who could return to a top 5 kind of QB, and a host of high upside RB picks. We shall see!
